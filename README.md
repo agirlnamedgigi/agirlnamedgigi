@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @agirlnamedgigi
+- 👀 I’m interested in cybersecurity, dogs and horror movies!
+- 🌱 I’m currently learning techniques of software application development in the UOC.
+- 💞️ I’m looking to collaborate as much as possible :) 
+- 📫 How to reach me: agiglio@uoc.edu
+- 😄 Pronouns: she/her
+- ⚡ Fun fact:  "Morris Worm"
